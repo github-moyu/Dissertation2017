@@ -1,0 +1,5 @@
+This folder contain information for dissertation: 
+
+PHENOLOGY OF COASTAL MARSHES IN LOUISIANA FROM 1984-2014: LONG- AND SHORT-TERM VARIATIONS ASSOCIATED WITH CLIMATE CHANGE AND DISASTROUS EVENTS
+Yu Mo, Doctor of Philosophy, 2017
+University of Maryland
